@@ -1,5 +1,5 @@
 # 💫 About Me:
-💀 Hi, I'm Amit kumar, A Cyber Security Analyst<br><br>🔭 Currently Researching: Exploring the world of cybersecurity to become a GOD.<br><br>👽 Skills: Find more on my LinkedIn.<br><br>🧑‍💻 Passion: Hunting bugs and solving/creating CTF challenges to enhance my cybersecurity skills.<br><br>⚡ Goal: Continuously seeking to explore and deepen my knowledge in cybersecurity.<br><br>🎮 Interests: Playing chess to sharpen my problem-solving, strategic thinking, teamwork, communication, focus, and concentration.<br><br>🤔 Fun Fact: 0xCAFEBABE isn’t just coffee; it’s life.<br><br>💡 Pro Tip: hack the planet
+💀 Hi, I'm Amit kumar, A Cyber Security Analyst<br><br>🔭 Currently Researching: Exploring the world of cybersecurity to become an Expert.<br><br>👽 Skills: Find more on my LinkedIn.<br><br>🧑‍💻 Passion: Hunting bugs and solving CTF challenges to enhance my cybersecurity skills.<br><br>⚡ Goal: Continuously seeking to explore and deepen my knowledge in cybersecurity.<br><br>🎮 Interests: Playing chess to sharpen my problem-solving, strategic thinking, teamwork, communication, focus, and concentration.<br><br>🤔 Fun Fact: 0xCAFEBABE isn’t just coffee; it’s life.<br><br>💡 Pro Tip: hack the planet
 
 
 ## 🌐 Socials:
